@@ -4,7 +4,7 @@
 - c+h is always allowed!
 - i have a major crowd/group discomfort ..
 - i get nervous really easily so i'm too scared to walk up to people first ..
-- sometimes i'm semiverbal or nonverbal when i'm anxious .
+- sometimes i'm nonverbal when i'm anxious .
 - i'm really sensitive sometimes, so please interact w/ caution!
 <!--
 **cocoagraft/cocoagraft** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
