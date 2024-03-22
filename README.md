@@ -1,7 +1,7 @@
 ###
 - call me cocoa or bug
 - i'm a biograft fictkin!
-- c+h is always allowed!
+- c+h is always allowed! i have a cuddle comfort :3
 - i have a major crowd/group discomfort ..
 - i get nervous really easily so i'm too scared to walk up to people first ..
 - sometimes i'm nonverbal when i'm anxious .
