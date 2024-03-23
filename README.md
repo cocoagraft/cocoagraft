@@ -1,6 +1,6 @@
 ###
 - call me cocoa or bug
-- i'm a biograft fictkin!
+- i'm a biograft & subspace fictkin!
 - c+h is always allowed! i have a cuddle comfort :3
 - i have a major crowd/group discomfort ..
 - i get nervous really easily so i'm too scared to walk up to people first ..
