@@ -7,7 +7,6 @@
 - sometimes i'm nonverbal when i'm anxious .
 - in some cases, i might stop talking when more than 2 people interact with me, it overwhelms me (sorry 3:)
 - i'm really sensitive sometimes, so please interact w/ caution!
-- i will not get hints until you say whatever you want explicitly!
 <!--
 **cocoagraft/cocoagraft** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
