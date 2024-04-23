@@ -1,12 +1,10 @@
 ###
-- call me cocoa(graft) or bio(graft)!
-- i'm a biograft, subspace & hyperlaser fictkin!
-- c+h is always allowed! i have a cuddle comfort :3
-- i have a major crowd/group discomfort ..
-- i get nervous really easily so i'm too scared to walk up to people first ..
-- sometimes i'm nonverbal when i'm anxious .
-- in some cases, i might stop talking when more than 2 people interact with me, it overwhelms me (sorry 3:)
-- i'm really sensitive sometimes, so please interact w/ caution!
+- ♡ cocoa / biograft
+- ♡ aroace + minor, nsfw jokes dniuc
+- ♡ c+h allowed!
+- ♡ socially anxious
+- ♡ semiverbal / nonverbal
+- ♡ crowd discomfort, attachment issues / seperation anxiety
 <!--
 **cocoagraft/cocoagraft** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
