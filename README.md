@@ -1,6 +1,6 @@
 ###
 - ♡ cocoa / biograft
-- ♡ aroace + minor, nsfw jokes dniuc
+- ♡ aroace + minor, nsfw jokes strictly dniuc
 - ♡ c+h allowed!
 - ♡ socially anxious
 - ♡ semiverbal / nonverbal
