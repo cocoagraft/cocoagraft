@@ -5,6 +5,7 @@
 - ♡ socially anxious
 - ♡ semiverbal / nonverbal
 - ♡ crowd discomfort, attachment issues / seperation anxiety
+- ♡ sometimes i miss some messages if alot of people interact, so please refrain from doing that
 <!--
 **cocoagraft/cocoagraft** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
