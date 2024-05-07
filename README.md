@@ -1,11 +1,14 @@
 ###
+GENERAL INFORMATION
 - ♡ cocoa / biograft
 - ♡ aroace + minor, nsfw jokes strictly dniuc
+- ♡ socially anxious, attachment issues / seperation anxiety
+
+PONYTOWN RELATED INFORMATION
+- ♡ semiverbal / nonverbal (unless friend)
 - ♡ c+h allowed!
-- ♡ socially anxious
-- ♡ semiverbal / nonverbal
-- ♡ crowd discomfort, attachment issues / seperation anxiety
-- ♡ sometimes i miss some messages if alot of people interact, so please refrain from doing that
+- ♡ crowd discomfort
+- ♡ i get inspiration from skins (of some people), please tell if you're uncomfy, i'll delete it!
 <!--
 **cocoagraft/cocoagraft** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
