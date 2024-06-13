@@ -2,6 +2,7 @@
 GENERAL INFORMATION
 - ♡ cocoa / biograft
 - ♡ aroace + minor, nsfw jokes strictly dniuc
+- ♡ age & pet regressor , always iwcuf
 - ♡ socially anxious, attachment issues / seperation anxiety
 
 PONYTOWN RELATED INFORMATION
