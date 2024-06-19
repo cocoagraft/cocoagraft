@@ -1,8 +1,8 @@
 ###
-cocoa , biograft
-socially anxious
-iwcuf
-c+h allowed if displayed ^_^
+- cocoa , biograft
+- socially anxious
+- iwcuf
+- c+h allowed if displayed ^_^
 <!--
 **cocoagraft/cocoagraft** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
