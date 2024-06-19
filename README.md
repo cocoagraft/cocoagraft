@@ -3,6 +3,7 @@
 - socially anxious
 - iwcuf
 - c+h allowed if displayed ^_^
+- i am a MINORR, if you're under 12 or over 15 don't be weird
 <!--
 **cocoagraft/cocoagraft** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
